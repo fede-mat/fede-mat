@@ -14,7 +14,7 @@ I completed my Bachelor's in **Mathematical Engineering** with an elective thesi
 
 ## Let's Connect
 Feel free to reach out to me:
-- LinkedIn: [LinkedIn Profile]([https://www.linkedin.com/in/federico-riva-b1b104191/])
+- LinkedIn: [LinkedIn Profile](https://www.linkedin.com/in/federico-riva-b1b104191/)
 - Email: [mail](mailto:federicomaria.riva@mail.polimi.it)
 
 Thanks for visiting my profile!
